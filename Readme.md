@@ -1,1 +1,1 @@
-<img src="https://vk.ru/wall-72725457_71368" />
+<img src="images (1).jpeg" />
